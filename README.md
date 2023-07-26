@@ -11,6 +11,6 @@
 
 Επιστημονική υποστήριξη ΤΕΦΑΑ Τρικάλων-Πανεπιστήμιο Θεσσαλίας
 
-Διαθέσιμο στο: https://sites.google. com/view/synefa2018/
+Διαθέσιμο στο: https://sites.google.com/view/synefa2018/
 
 Διαθέσιμο στο: https://tinyurl.com/3um7pek7 
